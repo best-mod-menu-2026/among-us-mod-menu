@@ -9,7 +9,7 @@ The **🎭 Among Us Mod Menu** is the most advanced and feature-rich hack tool f
 
 <div align="center">
 
-[![Download Among Us Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/among-us-mod-menu-free)
+[![Download Among Us Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/among-us-mod-menu-free)
 
 </div>
 
@@ -217,7 +217,7 @@ One mod menu. Total deception. Zero cost.
 
 <div align="center">
 
-[![Download Among Us Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/among-us-mod-menu-free)
+[![Download Among Us Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/among-us-mod-menu-free)
 
 **Version 2026.132.1** — Ultimate Among Us hack. Free forever.
 
